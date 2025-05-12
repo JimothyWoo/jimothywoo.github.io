@@ -6,19 +6,7 @@ Book Wishlist - [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b
 
 ## Lego
 
-- £300+
-    - [App-Controlled D11 Bulldozer](https://www.lego.com/en-gb/product/app-controlled-cat-d11-bulldozer-42131)
-    - [Bugatti Chiron](https://www.lego.com/en-gb/product/bugatti-chiron-42083)
-    - [Ferrari Daytona SP3](https://www.lego.com/en-gb/product/ferrari-daytona-sp3-42143)
-    - [Lamborghini Sián FKP 37](https://www.lego.com/en-gb/product/lamborghini-sian-fkp-37-42115)
-- £100 - £300
-    - [Ford Mustang](https://www.lego.com/en-gb/product/ford-mustang-10265)
-    - [Porsche 911 RSR](https://www.lego.com/en-gb/product/porsche-911-rsr-42096)
-    - [BMW M 1000 RR](https://www.lego.com/en-gb/product/bmw-m-1000-rr-42130)
-    - [International Space Station](https://www.lego.com/en-gb/product/international-space-station-21321)
-- < £100
-    - [Tales of the Space Age](https://www.lego.com/en-gb/product/tales-of-the-space-age-21340)
-    - [Up-Scaled LEGO Minifigure](https://www.lego.com/en-gb/product/up-scaled-lego-minifigure-40649)
+Lego Wishlist - [Lego.com](https://www.lego.com/en-us/member/wishlist/f93bcfc7-4f62-40aa-ac29-e30c3cac8667)
 
 ## Gift Cards
 
