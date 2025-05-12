@@ -6,19 +6,18 @@ Book Wishlist - [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b
 
 ## Lego
 
+This one doesn't work, unfortunately
 Lego Wishlist - [Lego.com](https://www.lego.com/en-us/member/wishlist/f93bcfc7-4f62-40aa-ac29-e30c3cac8667)
 
 ## Gift Cards
 
-- [IKEA](https://giftcard.ikea.co.uk/)
-- [Next](https://www4.next.co.uk/gift-cards)
-- [Waterstones](https://www.waterstonesgiftcards.com/product-category/gift-cards/)
-- [Steam](https://help.steampowered.com/en/faqs/view/5BB2-E986-A733-CF0E#:~:text=Media%20Markt-,UK,-Argos)
-- [Google Play](https://www.amazon.co.uk/dp/B07Y3JB99B/)
+- [Bookshop.org](https://bookshop.org/gift_cards)
+- [Barnes & Nobel](https://www.barnesandnoble.com/b/gift-cards/_/N-8rg)
+- [Lego](https://www.lego.com/en-us/gift-cards)
+- [Steam](https://store.steampowered.com/digitalgiftcards/)
+- [Google Play](https://play.google/giftcards/)
+- [IKEA](https://www.ikea.com/us/en/customer-service/gift-cards-pub3d1efe50/)
 
 ## Other
 
-- [Surrey Fantasy Map](https://www.etsy.com/uk/listing/1154207986/surrey-fantasy-map-surrey-print-surrey)
-- [Shaken Udder Milkshakes](https://shakenudder.com/product/3-cases-30-x-330ml-bottles)
-- [Le Creuset Mug](https://www.amazon.co.uk/dp/B07MKYHTKV/) (not Volcanic, Meringue, or Flint)
-- [SpaceX Mug](https://shop.nasaspaceflight.com/products/texas-tank-watchers-22-mug)
+
