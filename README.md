@@ -2,7 +2,7 @@
 
 ## Books
 
-Book Wishlist - [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b8badd0579e148578f76a9a)
+Book Wishlist (Most books I want are on here:) - [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b8badd0579e148578f76a9a)
 
 ## Video Games
 
