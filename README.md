@@ -27,9 +27,6 @@ Book Wishlist - [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b
 - [Kirby & Warp Star](https://www.bestbuy.com/product/nintendo-amiibo-kirby-warp-star-kirby-air-riders-series-multi/J7GSL5J827)
 - [Bandana Waddle Dee & Winged Star](https://www.bestbuy.com/product/nintendo-amiibo-bandana-waddle-dee-winged-star-kirby-air-riders-series-multi/J7GSL5J82T)
 
-## Movies
-
-
 ## Lego
 
 Lego Wishlist - [Lego.com](https://www.lego.com/guest/wishlist/f93bcfc7-4f62-40aa-ac29-e30c3cac8667)
