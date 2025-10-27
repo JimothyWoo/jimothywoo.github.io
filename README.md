@@ -33,8 +33,7 @@
 - [Bandana Waddle Dee & Winged Star](https://www.bestbuy.com/product/nintendo-amiibo-bandana-waddle-dee-winged-star-kirby-air-riders-series-multi/J7GSL5J82T)
 
 ## Lego
-
-Lego Wishlist - [Lego.com](https://www.lego.com/guest/wishlist/f93bcfc7-4f62-40aa-ac29-e30c3cac8667)
+###Lego Wishlist - [Lego.com](https://www.lego.com/guest/wishlist/f93bcfc7-4f62-40aa-ac29-e30c3cac8667)
 
 ## Gift Cards
 
