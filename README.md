@@ -26,7 +26,7 @@ Book Wishlist - [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b
 Lego Wishlist - [Lego.com](https://www.lego.com/guest/wishlist/f93bcfc7-4f62-40aa-ac29-e30c3cac8667)
 
 ## Gift Cards
-
+# Books
 - [Bookshop.org](https://bookshop.org/gift_cards)
 - [Barnes & Nobel](https://www.barnesandnoble.com/b/gift-cards/_/N-8rg)
 - [Lego](https://www.lego.com/en-us/gift-cards)
