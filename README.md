@@ -27,6 +27,7 @@ Lego Wishlist - [Lego.com](https://www.lego.com/guest/wishlist/f93bcfc7-4f62-40a
 
 ## Gift Cards
 ### Books
+- [Queen Takes Book](https://queentakesbook.com/gift-card/queen-takes-book-gift-certificate)
 - [Bookshop.org](https://bookshop.org/gift_cards)
 - [Barnes & Nobel](https://www.barnesandnoble.com/b/gift-cards/_/N-8rg)
 ### Video Games
