@@ -4,6 +4,11 @@
 
 Book Wishlist - [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b8badd0579e148578f76a9a)
 
+## Video Games
+
+## Movies
+
+
 ## Lego
 
 Lego Wishlist - [Lego.com](https://www.lego.com/guest/wishlist/f93bcfc7-4f62-40aa-ac29-e30c3cac8667)
@@ -14,6 +19,7 @@ Lego Wishlist - [Lego.com](https://www.lego.com/guest/wishlist/f93bcfc7-4f62-40a
 - [Barnes & Nobel](https://www.barnesandnoble.com/b/gift-cards/_/N-8rg)
 - [Lego](https://www.lego.com/en-us/gift-cards)
 - [Steam](https://store.steampowered.com/digitalgiftcards/)
+- [Nintendo](https://www.nintendo.com/us/retail-offers/nintendo-eshop-cards/?srsltid=AfmBOoquAB6OAXJ_zQdTNqNEVqX36U06a6Je81J8DKmH4wODU8_3hLMk).
 - [Google Play](https://play.google/giftcards/)
 - [IKEA](https://www.ikea.com/us/en/customer-service/gift-cards-pub3d1efe50/)
 
