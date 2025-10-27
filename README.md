@@ -2,9 +2,9 @@
 
 ## Books
 
-Book Wishlist (Most books I want are on here:) - [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b8badd0579e148578f76a9a)
+###Book Wishlist (Most books I want are on here:) - [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b8badd0579e148578f76a9a)
 
-### Books not on that wishkist:
+### Books not on that wishlist:
 - [50 Indie Games that Changed the World](https://www.bitmapbooks.com/products/50-indie-games-that-changed-the-world?srsltid=AfmBOoriCYqZ_-qxWOVYrgFacnS0tJhFC4yLVqAq4EnmJQKt-RRuiWP5)
 - [Process: A Novel](https://www.tuneandfairweather.com/products/process-a-novel-digital-edition)
 - [Chrono Trigger](https://bossfightbooks.com/collections/books/products/chrono-trigger-by-michael-p-williams)
