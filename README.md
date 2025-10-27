@@ -17,6 +17,13 @@ Book Wishlist - [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b
 - [Kirby Air Riders](https://www.costco.com/p/-/kirby-air-riders-nintendo-switch-2/4000404894?storeId=10301&partNumber=4000404894&catalogId=10701&langId=-1&krypto=ldRQH3FAqPtVvvqqy%2B2oag7tCrOQPKfb0kTiEnVejXEKM%2F5BrHc4vdU%2BRK4hVDrvrfikAXZEhUSiG6sM%2BR13nT%2FKIx%2FAV01e2qFagE0xbXt5gA1%2FmMPo%2FM%2F%2BMZq8xjg9)
 - [Daemon X Machina: Titanic Scion](https://www.bestbuy.com/product/daemon-x-machina-titanic-scion-nintendo-switch-2/J3R84YL9TK)
 - [DRAGON QUEST I & II HD-2D Remake](https://www.bestbuy.com/product/dragon-quest-i-ii-hd-2d-remake-nintendo-switch-2/JXL9RG8PXH)
+### Amiibo
+- [Samus & Vi-O-La](https://www.bestbuy.com/product/nintendo-amiibo-samus-vi-o-la-metroid-prime-4-beyond-series-multi/J7GSL5J3R5)
+- [Samus](https://www.bestbuy.com/product/nintendo-amiibo-samus-metroid-prime-4-beyond-series-multi/J7GSL5J3RQ)
+- [Sylux](https://www.bestbuy.com/product/nintendo-amiibo-sylux-metroid-prime-4-beyond-series-multi/J7GSL5J3QR)
+- [Donkey Kong and Pauline](https://www.bestbuy.com/product/nintendo-amiibo-donkey-kong-and-pauline-donkey-kong-bananza-series-multi/J7GSL5J87G)
+- [Kirby & Warp Star](https://www.bestbuy.com/product/nintendo-amiibo-kirby-warp-star-kirby-air-riders-series-multi/J7GSL5J827)
+- [Bandana Waddle Dee & Winged Star](https://www.bestbuy.com/product/nintendo-amiibo-bandana-waddle-dee-winged-star-kirby-air-riders-series-multi/J7GSL5J82T)
 
 ## Movies
 
