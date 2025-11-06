@@ -43,7 +43,7 @@
 ### Books
 - [Queen Takes Book](https://queentakesbook.com/gift-card/queen-takes-book-gift-certificate)
 - [Bookshop.org](https://bookshop.org/gift_cards)
-- [Barnes & Nobel](https://www.barnesandnoble.com/b/gift-cards/_/N-8rg)
+- [Barnes & Noble](https://www.barnesandnoble.com/b/gift-cards/_/N-8rg)
   
 ### Video Games
 - [Steam](https://store.steampowered.com/digitalgiftcards/)
