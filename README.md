@@ -6,7 +6,7 @@ Jim Huselton's Wishlist
 - [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b8badd0579e148578f76a9a)
 
 ### Books not on those wishlists:
-- [ICO: Castle in the Mist]([https://www.barnesandnoble.com/w/ico-miyuki-miyabe/1030188344?ean=9781421540634](https://www.amazon.com/ICO-Castle-Mist-Miyuki-Miyabe-ebook/dp/B005WKE31A/ref=tmm_kin_swatch_0)) (Looks to only be availble on kindle now)
+- [ICO: Castle in the Mist](https://www.amazon.com/ICO-Castle-Mist-Miyuki-Miyabe-ebook/dp/B005WKE31A/ref=tmm_kin_swatch_0) (Looks to only be availble on kindle now)
 - [50 Indie Games that Changed the World](https://www.bitmapbooks.com/products/50-indie-games-that-changed-the-world?srsltid=AfmBOoriCYqZ_-qxWOVYrgFacnS0tJhFC4yLVqAq4EnmJQKt-RRuiWP5)
 - [Process: A Novel](https://www.tuneandfairweather.com/products/process-a-novel-digital-edition)
 - [Chrono Trigger](https://bossfightbooks.com/collections/books/products/chrono-trigger-by-michael-p-williams)
