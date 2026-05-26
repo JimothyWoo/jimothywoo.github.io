@@ -2,7 +2,7 @@ Jim Huselton's Wishlist
 
 # Books
 ### Book Wishlists (most books I want are on these!): 
-- [Queen Takes Book](https://queentakesbook.com/wishlist/5644080659973140)
+- [Queen Takes Book](https://queentakesbook.com/wishlist/5644080659973140) (Local Columbia Bookstore)
 - [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b8badd0579e148578f76a9a)
 
 ### Books not on those wishlists:
@@ -22,7 +22,7 @@ Jim Huselton's Wishlist
 ## Nintendo Switch 2
 
 ### Accessories
-- [Memory, 256 GB](https://www.dekudeals.com/items/256gb-microsdxc-express-card)
+<!-- - [Memory, 256 GB](https://www.dekudeals.com/items/256gb-microsdxc-express-card) -->
 - [Joy-lock Grips](https://dbrand.com/shop/killswitch/nintendo-switch-2-joy-con-grips?options=grips#buy)
 - [Piranha Plant Camera](https://www.dekudeals.com/items/hori-piranha-plant-camera-for-nintendo-switch-2)
 
