@@ -1,7 +1,7 @@
 # Jim Huselton's Wishlist
 
 ## Books
-### Book Wishlists (most books I want are on here!): 
+### Book Wishlists (most books I want are on these!): 
 - [Queen Takes Book](https://queentakesbook.com/wishlist/5644080659973140)
 - [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b8badd0579e148578f76a9a)
 
