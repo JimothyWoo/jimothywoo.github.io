@@ -35,7 +35,7 @@ Jim Huselton's Wishlist
 - [Kirby Air Riders](https://www.costco.com/p/-/kirby-air-riders-nintendo-switch-2/4000404894?storeId=10301&partNumber=4000404894&catalogId=10701&langId=-1&krypto=ldRQH3FAqPtVvvqqy%2B2oag7tCrOQPKfb0kTiEnVejXEKM%2F5BrHc4vdU%2BRK4hVDrvrfikAXZEhUSiG6sM%2BR13nT%2FKIx%2FAV01e2qFagE0xbXt5gA1%2FmMPo%2FM%2F%2BMZq8xjg9)
   
 ### Amiibo
-- [Mineru'ss Construct](https://www.dekudeals.com/items/amiibo-minerus-construct-tears-of-the-kingdom-the-legend-of-zelda-series)
+- [Mineru's Construct](https://www.dekudeals.com/items/amiibo-minerus-construct-tears-of-the-kingdom-the-legend-of-zelda-series)
 - [Samus](https://www.dekudeals.com/items/amiibo-samus-metroid-prime-4-beyond-series)
 
 
