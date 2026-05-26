@@ -1,9 +1,11 @@
 # Jim Huselton's Wishlist
 
 ## Books
-### Book Wishlist (Most books I want are on here!) - [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b8badd0579e148578f76a9a)
+### Book Wishlists (Most books I want are on here!): 
+- [Queen Takes Book](https://queentakesbook.com/wishlist/5644080659973140)
+- [Bookshop.com](https://bookshop.org/wishlists/18da2f2bc0a7ce168b8badd0579e148578f76a9a)
 
-### Books not on that wishlist:
+### Books not on those wishlists:
 - [ICO: Castle in the Mist](https://www.barnesandnoble.com/w/ico-miyuki-miyabe/1030188344?ean=9781421540634)
 - [50 Indie Games that Changed the World](https://www.bitmapbooks.com/products/50-indie-games-that-changed-the-world?srsltid=AfmBOoriCYqZ_-qxWOVYrgFacnS0tJhFC4yLVqAq4EnmJQKt-RRuiWP5)
 - [Process: A Novel](https://www.tuneandfairweather.com/products/process-a-novel-digital-edition)
