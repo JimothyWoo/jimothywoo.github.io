@@ -53,6 +53,10 @@ Jim Huselton's Wishlist
 ## Computer 
 ### Gift Cards
 - [Steam](https://www.bestbuy.com/product/valve-steam-wallet-20-gift-card/J33V3JVHPQ)
+
+## Retro Gaming
+- [Game Boy Advance](https://krikzz.com/our-products/cartridges/everdrive-gba-pro.html)
+- [Super Nintento](https://krikzz.com/our-products/cartridges/fxpak-pro.html)
   
 ## Lego
 ### Lego Wishlist (You may have to click this link twice for it to work):
