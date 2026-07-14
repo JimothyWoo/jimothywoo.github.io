@@ -27,7 +27,6 @@ Jim Huselton's Wishlist
 
 ### Games
 - [Yoshi and the Mysterious Book](https://www.costco.com/p/-/yoshi-and-the-mysterious-book-nintendo-switch-2/4201008072?langId=-1)
-- [Donkey Kong Bananza](https://www.costco.com/p/-/donkey-kong-bananza-nintendo-switch-2/4000373240?langId=-1)
 - [Star Fox](https://www.dekudeals.com/items/star-fox)
 - [Another Code: Recollection](https://www.dekudeals.com/items/another-code-recollection)
 - [Pokémon Legends: Arceus](https://www.dekudeals.com/items/pokemon-legends-arceus)
@@ -36,8 +35,7 @@ Jim Huselton's Wishlist
   
 ### Amiibo
 - [Mineru's Construct](https://www.dekudeals.com/items/amiibo-minerus-construct-tears-of-the-kingdom-the-legend-of-zelda-series)
-- [Samus](https://www.dekudeals.com/items/amiibo-samus-metroid-prime-4-beyond-series)
-
+- 
 ### Gift Cards
 - [Nintendo Gift Cards](https://www.costco.com/p/-/nintendo-eshop-four-25-egift-cards/4000152900?langId=-1)
 
