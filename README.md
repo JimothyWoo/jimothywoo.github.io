@@ -35,7 +35,7 @@ Jim Huselton's Wishlist
   
 ### Amiibo
 - [Mineru's Construct](https://www.dekudeals.com/items/amiibo-minerus-construct-tears-of-the-kingdom-the-legend-of-zelda-series)
-- 
+- [Leon S. Kennedy](https://www.dekudeals.com/items/amiibo-leon-s-kennedy-resident-evil-series)
 ### Gift Cards
 - [Nintendo Gift Cards](https://www.costco.com/p/-/nintendo-eshop-four-25-egift-cards/4000152900?langId=-1)
 
