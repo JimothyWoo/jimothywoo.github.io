@@ -44,10 +44,16 @@ Jim Huselton's Wishlist
 - [Indiana Jones and the Great Circle](https://www.dekudeals.com/items/indiana-jones-and-the-great-circle?platform=xbox_series)
 - [007 First Light](https://www.dekudeals.com/items/007-first-light?platform=xbox_series)
 - [Resident Evil Requiem](https://www.dekudeals.com/items/resident-evil-requiem?platform=xbox_series)
+- [Star Wars Zero Company](https://www.dekudeals.com/items/star-wars-zero-company?platform=xbox_series)
+- [Star Wars Galactic Racer](https://www.dekudeals.com/items/star-wars-galactic-racer?platform=xbox_series)
 - [Metal Gear Solid Master Collection Vol 1](https://www.dekudeals.com/items/metal-gear-solid-master-collection-vol-1?platform=xbox_series)
 
 ### Game Pass
 - [1 month Game Pass Ultimate](https://www.bestbuy.com/product/microsoft-xbox-game-pass-ultimate-1-month-membership-digital/JJGXP37G8Q)
+
+## Playstation
+### Games
+- [Star Trek Resurgence](https://www.dekudeals.com/items/star-trek-resurgence)
 
 ## Computer 
 ### Gift Cards
